@@ -1,16 +1,35 @@
-## Hi there 👋
+✧ ➷ೃ༄*ੈ✩ ✧ ➷ೃ༄*ੈ✩ ✧ ➷ೃ༄*ੈ✩
+𝐀𝐭𝐚 𝐛𝐨𝐨𝐤! [ || 𝐒𝐭𝐫𝐚𝐰 𝐏𝐚𝐠𝐞(𝐧𝐨𝐭 𝐝𝐨𝐧𝐞 𝐝𝐨 𝐧𝐨𝐭 𝐜𝐥𝐢𝐜𝐤) || 𝐏𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭! || 𝐌𝐚𝐠𝐦𝐚!
 
-<!--
-**CheddarChez/CheddarChez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="657" height="467" alt="image" src="https://github.com/user-attachments/assets/1a391e98-07af-4f86-980a-cb648ebc8c11" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+               ────۶ৎ────
+               
+𝐇𝐞𝐲𝐚! 𝐈’𝐦 𝐎𝐥𝐢𝐯𝐞𝐫 𝐛𝐮𝐭 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐚𝐥𝐬𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞 𝐑𝐢𝐝𝐝𝐥𝐞! 𝐀𝐧𝐝 𝐡𝐞𝐫𝐞 𝐚𝐫𝐞 𝐬𝐨𝐦𝐞 𝐢𝐧𝐟𝐨 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ^_^  
+
+ᛝ𝐈’𝐦 𝐚 𝐦𝐢𝐧𝐨𝐫 
+
+ᛝ𝐈 𝐠𝐨 𝐛𝐲 𝐓𝐡𝐞𝐲/𝐓𝐡𝐞𝐦 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬 (𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨 𝐚𝐛𝐨𝐮𝐭 𝐦𝐲 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬 𝐚𝐧𝐝 𝐧𝐚𝐦𝐞 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐞𝐧.𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬!) 
+
+ᛝ𝐈’𝐦 𝐚 𝐆𝐞𝐦𝐢𝐧𝐢 
+
+ᛝ𝐦𝐲 𝐦𝐛𝐭𝐢 𝐢𝐬 𝐈𝐍𝐓𝐏 
+
+ᛝ𝐈 𝐩𝐥𝐚𝐲 𝐩𝐭! 𝐅𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭 𝐮𝐧𝐥𝐞𝐬𝐬 𝐦𝐲 𝐧𝐚𝐦𝐞 𝐬𝐚𝐲𝐬 𝐨𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞 
+𝐈 𝐥𝐢𝐯𝐞 𝐢𝐧 𝐁𝐫𝐚𝐳𝐢𝐥 𝐬𝐨 𝐝𝐢𝐟𝐟𝐞𝐫𝐞𝐧𝐭 𝐭𝐢𝐦𝐞 𝐳𝐨𝐧𝐞𝐬 : ( 
+
+ᛝ𝐈’𝐦 𝐚 𝐬𝐥𝐨𝐰 𝐭𝐞𝐱𝐭𝐞𝐫
+
+ᛝ𝐈 𝐚𝐦 𝐚 𝐫𝐢𝐝𝐝𝐥𝐞 𝐟𝐢𝐜𝐭𝐢𝐨𝐧𝐤𝐢𝐧 𝐝𝐨𝐮𝐛𝐥𝐞𝐬 𝐃𝐍𝐈 
+
+               ────۶ৎ────
+   
+𝐦𝐚𝐢𝐧 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 𝐫𝐧 
+𝐇𝐚𝐦𝐢𝐥𝐭𝐨𝐧 (𝐩𝐥𝐬 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭 𝐢𝐟 𝐲𝐨𝐮 𝐥𝐢𝐤𝐞 𝐢𝐭 𝐚𝐥𝐥 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐚𝐫𝐞 𝐚𝐥𝐫𝐞𝐚𝐝𝐲 𝐛𝐨𝐫𝐞𝐝 𝐨𝐟 𝐦𝐞 𝐲𝐚𝐩𝐩𝐢𝐧𝐠 𝐍𝐎𝐍𝐒𝐓𝐎𝐏 𝐛𝐨𝐮𝐭 𝐢𝐭) 𝐒𝐈𝐗, 𝐒𝐭𝐫𝐚𝐧𝐠𝐞𝐫 𝐓𝐡𝐢𝐧𝐠𝐬 𝐭𝐡𝐞 𝐟𝐢𝐫𝐬𝐭 𝐬𝐡𝐚𝐝𝐨𝐰 (𝐈 𝐥𝐢𝐤𝐞 𝐭𝐡𝐞 𝐬𝐡𝐨𝐰 𝐛𝐮𝐭 𝐝𝐢𝐝𝐧’𝐭 𝐟𝐢𝐧𝐢𝐬𝐡 𝐢𝐭 𝐲𝐞𝐭), 𝐓𝐖𝐒𝐓, 𝐓𝐨𝐡 𝐚𝐧𝐝 𝐑𝐎𝐓𝐇 ^^ 
+
+              ────۶ৎ────
+
+𝐈 𝐥𝐢𝐤𝐞 𝐦𝐮𝐬𝐢𝐜 𝐬𝐨𝐦𝐞 𝐨𝐟 𝐦𝐲 𝐟𝐚𝐯𝐨𝐫𝐢𝐭𝐞 𝐚𝐫𝐭𝐢𝐬𝐭𝐬 𝐚𝐫𝐞 𝐋𝐢𝐧 𝐌𝐚𝐧𝐮𝐞𝐥 𝐌𝐢𝐫𝐚𝐧𝐝𝐚, 𝐋𝐞𝐦𝐨𝐧 𝐝𝐞𝐦𝐨𝐧, 𝐌𝐚𝐫𝐢𝐧𝐚 𝐚𝐧𝐝 𝐀𝐥𝐞𝐱 𝐠 ^^ 
+
+<img width="657" height="467" alt="image" src="https://github.com/user-attachments/assets/f09267f9-9391-427c-84df-5e251f87a7bf" />
