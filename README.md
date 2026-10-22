@@ -1,3 +1,7 @@
+
+<img width="841" height="184" alt="image" src="https://github.com/user-attachments/assets/7a84a78b-47d5-445f-b2bc-d138b5f2c0f9" />
+
+
 ✧ ➷ೃ༄*ੈ✩ ✧ ➷ೃ༄*ੈ✩ ✧ ➷ೃ༄*ੈ✩
 
 [𝐀𝐭𝐚 𝐛𝐨𝐨𝐤](https://en.pronouns.page/@CheddarChez) || 𝐒𝐭𝐫𝐚𝐰 𝐏𝐚𝐠𝐞(𝐧𝐨𝐭 𝐝𝐨𝐧𝐞 𝐝𝐨 𝐧𝐨𝐭 𝐜𝐥𝐢𝐜𝐤) || [𝐏𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭!](https://br.pinterest.com/EmberClock/_saved/)|| [𝐌𝐚𝐠𝐦𝐚!](https://magma.com/artist/olly-jolly/gallery)
@@ -34,3 +38,5 @@
 𝐈 𝐥𝐢𝐤𝐞 𝐦𝐮𝐬𝐢𝐜 𝐬𝐨𝐦𝐞 𝐨𝐟 𝐦𝐲 𝐟𝐚𝐯𝐨𝐫𝐢𝐭𝐞 𝐚𝐫𝐭𝐢𝐬𝐭𝐬 𝐚𝐫𝐞 𝐋𝐢𝐧 𝐌𝐚𝐧𝐮𝐞𝐥 𝐌𝐢𝐫𝐚𝐧𝐝𝐚, 𝐋𝐞𝐦𝐨𝐧 𝐝𝐞𝐦𝐨𝐧, 𝐌𝐚𝐫𝐢𝐧𝐚 𝐚𝐧𝐝 𝐀𝐥𝐞𝐱 𝐠 ^^ 
 
 <img width="657" height="467" alt="image" src="https://github.com/user-attachments/assets/f09267f9-9391-427c-84df-5e251f87a7bf" />
+
+<img width="891" height="198" alt="image" src="https://github.com/user-attachments/assets/8ce1237b-0969-40a4-9644-d53b075850f1" />
