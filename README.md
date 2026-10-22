@@ -1,5 +1,6 @@
 ✧ ➷ೃ༄*ੈ✩ ✧ ➷ೃ༄*ੈ✩ ✧ ➷ೃ༄*ੈ✩
-𝐀𝐭𝐚 𝐛𝐨𝐨𝐤! [ || 𝐒𝐭𝐫𝐚𝐰 𝐏𝐚𝐠𝐞(𝐧𝐨𝐭 𝐝𝐨𝐧𝐞 𝐝𝐨 𝐧𝐨𝐭 𝐜𝐥𝐢𝐜𝐤) || 𝐏𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭! || 𝐌𝐚𝐠𝐦𝐚!
+
+[𝐀𝐭𝐚 𝐛𝐨𝐨𝐤](https://en.pronouns.page/@CheddarChez) || 𝐒𝐭𝐫𝐚𝐰 𝐏𝐚𝐠𝐞(𝐧𝐨𝐭 𝐝𝐨𝐧𝐞 𝐝𝐨 𝐧𝐨𝐭 𝐜𝐥𝐢𝐜𝐤) || [𝐏𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭!](https://br.pinterest.com/EmberClock/_saved/)|| [𝐌𝐚𝐠𝐦𝐚!](https://magma.com/artist/olly-jolly/gallery)
 
 <img width="657" height="467" alt="image" src="https://github.com/user-attachments/assets/1a391e98-07af-4f86-980a-cb648ebc8c11" />
 
